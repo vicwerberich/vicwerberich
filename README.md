@@ -1,5 +1,5 @@
 
-### Oii, eu sou a Anna Victoria! ou mais conhecida como Kim. Caso queira entrar em contato comigo acesse algum dos links abaixo 👇🏻 :)
+### Oii, eu sou a Anna, mais conhecida como Kim. Caso queira entrar em contato comigo acesse algum dos links abaixo. :)
 [![Twitter](https://img.shields.io/badge/Twitter-1DA1F2?style=for-the-badge&logo=twitter&logoColor=white)](httpss://x.com/annawerberich)
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](httpss://instagram.com/annawerberich)
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/anna-victoria-alves-1068b1338/)
